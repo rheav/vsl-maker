@@ -1,0 +1,113 @@
+Isso era tudo o que eu queria contar para você, e.
+
+Espero que tenha te ajudado a ao menos entender melhor.
+
+Porque você tem tanta dificuldade em dormir bem.
+
+E sendo bem prático, agora você tem 2 caminhos partindo daqui.
+
+- Caminho 1: Você pode decidir ignorar tudo o que aprendeu aqui hoje.
+
+Ignorar a ciência sobre o por quê sua mente continua tão.
+
+Ativa mesmo com você exausta e precisando dormir.
+
+Esse é um caminho que você pode escolher.
+
+E se decidir seguir por essa rota, tá tudo bem!
+
+De verdade, te desejo toda a sorte do mundo e espero que.
+
+Essa apresentação ao menos te dê ferramentas para que.
+
+Você possa enfrentar esse problema.
+
+Mas, se me permite a "provocação", pergunte a si mesma.
+
+Se você não fizer algo agora para pôr fim às suas noites.
+
+De insônia, seja com o Sono Grego ou qualquer outra coisa.
+
+O que vai mudar na sua vida?
+
+- A falta de energia, o cansaço constante, o baixo desejo sexual.
+
+Os quilinhos a mais que simplesmente não "somem".
+
+O que vai mudar nisso tudo?
+
+Imagine o que acontecerá se você permitir que.
+
+A falta de sono continue a prejudicar seus relacionamentos.
+
+Caso tenha filhos, pense em como eles crescerão acreditando que.
+
+Você é uma mãe que está sempre brava e indisposta com eles.
+
+Seu marido, pode até começar a explorar outras opções.
+
+Falo isso porque eu sei o que passa na mente do homem, infelizmente.
+
+Mas, calma, ainda não é tarde demais.
+
+Você pode escolher um caminho diferente agora.
+
+E é o caminho 2.
+
+Você pode dizer sim ao Sono Grego e começar já.
+
+Clique no botão amarelo abaixo do seu vídeo e, em seguida.
+
+Preencha o formulário de pedido na próxima página.
+
+Usando nosso processo de pagamento 100% seguro.
+
+Imagine dar o seu primeiro passo rumo à uma vida nova, hoje!
+
+Pense como será saber que agora você está no caminho para.
+
+Dormir sem nenhuma ansiedade.
+
+Porque com o Sono Grego, você sabe que vai adormecer assim que.
+
+A cabeça tocar o travesseiro, e terá uma noite inteira de.
+
+Sono ininterrupto antes de pular da cama na manhã seguinte.
+
+Cheia de energia e otimismo, como se tivesse sido.
+
+Impulsionada por um foguete.
+
+Porque, agora, aqui nesta página, tudo isso e muito mais pode ser seu.
+
+Não importa se você está sob constante estresse do trabalho e da família.
+
+Não importa se você é uma pessoa de sono leve que acorda ao menor som.
+
+Não importa nem mesmo se você sofre de dor crônica ou.
+
+Formigamento que torna impossível pegar no sono facilmente.
+
+E lembre-se, você não precisa apenas acreditar em mim.
+
+Você pode experimentar o Sono Grego e chegar à essa conclusão você mesma.
+
+Sem riscos. Graças à Garantia Total 30 Noites, sem questionamentos.
+
+Portanto, garanta o seu acesso ao Sono Grego agora!
+
+É isso, agora é com você.
+
+Seja qual for sua escolha, muito obrigado mesmo pela sua atenção, de verdade.
+
+Fico feliz em saber que essa apresentação te ajudou a entender.
+
+Um pouco melhor o problema que você enfrenta.
+
+E espero que você junte-se a nós no Sono Grego!
+
+Clique no botão amarelo aqui abaixo do vídeo para ser direcionada.
+
+A tela de checkout, onde você realizará o seu pedido.
+
+Uma ótima noite pra você, e bons sonhos!
